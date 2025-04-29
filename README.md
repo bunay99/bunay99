@@ -2,7 +2,7 @@
 - 👀 I’m interested in Fullstack Developer
 - 🌱 I’m currently learning Fullstack Developer
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 You can reach me on Instagram : @bunay99
 - ⚡ Fun fact: I'am Manchester United FC Fans, I love watching anime, kdrama, serial film and movies.
 
 <!---
